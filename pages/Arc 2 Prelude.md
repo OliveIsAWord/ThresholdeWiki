@@ -1,0 +1,3 @@
+- [[Alina]] has become a member of the [[Circle]]. She no longer has magic.
+- [[Bastiod]] has disappeared in shame.
+- [[Duncan]] left New Thresholde to find [[Bastiod]].
