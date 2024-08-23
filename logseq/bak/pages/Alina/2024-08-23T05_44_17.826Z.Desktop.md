@@ -1,0 +1,9 @@
+- Name: "Alina" Mes Raj (deadname)
+- Pronouns: she/her
+- Age: 22
+- ## History
+- Alina is a young [[Tyrin]] in New Thresholde. On 16th Rising Som, 200, she discovered the body of her caretaker Teysha, and had a magical outburst, which agents of [[The Shade]] [[Amalia]] and [[Claude]] were sent to deal with. Alina evaded the two but ended up captured by [[The Followers]] led by [[Tarek]]. After being saved by the two agents, she was placed in Amalia's house with [[Marty]], her cat friend, for protection.
+-
+- Foreseeing the attack on the precinct, Alina forcefully enlisted the help of [[Duncan]] and [[Inaya]], as well as an alternate universe incarnation of [[Charlotte]], all via powerful teleportation. This left Alina trapped in the [[Ley Realm]]. She was able to use some reserves of magic to interact with the Material Plane, such as projecting herself onto those who had an emotional connection to her. She also sabotaged many of the Followers' salt pit bodies.
+-
+- In the last of these acts, she foresaw Charlotte's murder, and gifted Amalia this foresight which allowed her to save Charlotte. At this point, Claude was no longer connected to Alina. When the [[Rulebreakers]] ventured into the Ley Realm, they were able to rescua Alina and return her to the city.
